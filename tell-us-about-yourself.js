@@ -9,4 +9,4 @@ Plumber/construction. Fun usuung tools to build things
 // 4. What is your "comfort" food? 
 pizza all the way
 // 5. What is one thing you find interesting about yourself ( that others might not notice at first) ? 
-may not look like it but i have a happy demeanor
+I love tinkering. Difficult for me to sit still so always looking for constructive outlets
